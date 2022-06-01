@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @37h4nn4ug13
 - 👀 I’m interested in programming👨‍💻
-- 🌱 I’m currently studying computer engineerin🖥 at University of Tennessee🍊🍊🍊
+- 🌱 I’m currently studying computer engineering🖥 at University of Tennessee🍊🍊🍊
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me ... n.ethan.naugle@gmail.com
 
