@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @37h4nn4ug13
+- 👋 Hi, I’m Ethan Naugle
 - 👀 I’m interested in programming👨‍💻
 - 🌱 I’m currently studying computer engineering🖥 at University of Tennessee🍊🍊🍊
 - 💞️ I’m looking to collaborate on anything
